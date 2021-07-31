@@ -1,6 +1,6 @@
-To begin making the Spaghetti Pasta Recipe In Creamy Tomato Sauce start by boiling the Del Monte spaghetti pasta in hot water and a little bit of salt. Keep a saucepan filled with water over a medium heat.
+To begin making the Spaghetti Pasta Recipe In Creamy Tomato Sauce start by boiling the  spaghetti pasta in hot water and a little bit of salt. Keep a saucepan filled with water over a medium heat.
 
-Drop in the spaghetti pasta and a pinch of salt and leave it to boil. Boil the spaghetti pasta till it just the biting consistency which is the al dente.
+Drop in the spaghetti pasta and a pinch of salt and leave it to boil. Boil the spaghetti pasta till it just the biting consistency .
 
 Strain the water and rinse the cooked spaghetti pasta over cold water, to stop cooking the pasta. Drizzle the pasta with olive oil and keep aside.
 
